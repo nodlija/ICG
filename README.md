@@ -1,2 +1,1 @@
-* Projektzeitplan
-Unter http://goo.gl/CdZiF
+Projektzeitplan unter http://goo.gl/CdZiF
